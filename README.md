@@ -8,7 +8,7 @@ I'm primarily a full-stack-ish web developer/software engineer/programmer/comput
 
 * You want to chat about [a book we've both read](https://librarything.com/catalog/kaitlynmeans)
 * You have cute animal photos or vids to share
-* You can personally recommend a good driving instructor in central London
+* You will save me from the [mountain of ceramics](https://krtierney.art) piling up in my house by taking some to your house instead
 
 --- 
 
