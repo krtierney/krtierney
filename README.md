@@ -2,11 +2,11 @@
 
 #### I'm Kaitlyn.
 
-I'm primarily a full-stack-ish web developer/software engineer/programmer/computers person. You can read a bit [about my background](https://krtierney.com/about/) or find [my CV](https://krtierney.com/cv.pdf) on [my website](https://krtierney.com).
+I'm primarily a full-stack-ish web developer/software engineer/programmer/computers person. You can read a bit [about my background](https://krtierney.com/about/) or find [my somewhat outdated CV](https://krtierney.com/cv.pdf) on [my website](https://krtierney.com).
 
 #### 💬 Get in touch if... 
 
-* You want to chat about [a book we've both read](https://librarything.com/catalog/kaitlynmeans)
+* You want to chat about [a book we've both read](https://www.librarything.com/catalog/krtierney)
 * You have cute animal photos or vids to share
 * You will save me from the [mountain of ceramics](https://krtierney.art) piling up in my house by taking some to your house instead
 
